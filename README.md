@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Long time no see!
 
 - [**⚡ HOMEPAGE**](https://pieseven-works.github.io)
 
